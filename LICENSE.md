@@ -1,4 +1,4 @@
-# 
+# Experience shrink for brainrots like never before with best shrink for brainrots Script, the #1 Script. Includes one-hit kill and auto-farm for
 
 
 
